@@ -1,4 +1,4 @@
 # TC_Lab3
 
-Link de problema 1: <br>
-asdfasf
+[Link problema 3](https://youtu.be/wcSNtQILv_A)
+
